@@ -48,7 +48,19 @@ Si la Constitución de 1946 daba en principio una base representativa al poder d
 embargo ciertas formas de democracia directa. 
 Así, estatuia el referendum para las cuestiones de competencia federal o de las Repúblicas federadas. 
 Ignoraba, por otra parte, el referendum local. 
-Pero el artículo 109 declaraba: “Los comités populares están obligados, en la realización de sus tareas generales y locales, a apoyarse en la iniciativa y la amplia participación de las masas
+Pero el artículo 109 declaraba: “Los comités populares están obligados, en la realización de sus tareas generales y locales, a apoyarse en la iniciativa y la amplia participación de las masas populares y en las organizaciones del pueblo trabajador."
+Después de votada la Constitución y, en particular, en las leyes sobre los comités populares de 1946 y 1949, se instituyeron ciertas formas de democracia directa o semi-directa, tales como las reuñiones de electores, los consejos y comisiones de ciudadanos junto a los comités populares, etc. 
+La Ley sobre la organización de los tribunales, votada inmediatamente después de la Constitución, establece lo que se llama “el tribunal laico” mediante la introducción, en los consejos de los tribunales de distrito y de departamento, de jurados que participan en el procedimiento y el juicio, al lado de los jueces profesionales y con los mismos derechos.
+
+El periodo que va de la votación de la Constitución a la entrada en vigor de las nuevas leyes constitucionales se caracteriza, pues, por una tendencia a la democratización del poder. 
+Gracias a la implantación y fuerzo de la autogestión de los productores y a los cambios introducidos en la sociedad y la economia la nueva Ley constitucional pudo plantear el principio de la soberanía popular de una manera todavía más clara y consecuente.
+
+La Ley constitucional federal de 1953 declaraba, en su artículo 2, fracción 1, el principio de que “en la República Federativa Popular de Yugoslavia todo el poder emana del pueblo y pertenece al pueblo trabajador”.
+Para evitar que este principio sea puramente verbal, la Ley constitucional determina los medios a través de los cuales el pueblo trabajador puede realizar este poder, organizarlo y participar en su ejercicio. 
+El artículo 2, fracción 2, enumera los derechos del ciudadano y instituciones políticas mediante las cuales el pueblo trabajador administra los asun de la sociedad. 
+Son éstos: a) Los cuerpos representativos: comités y asambleas populares, consejos obreros y otros órganos de autogobierno; b) La elección y la revocación por el pueblo de sus representantes en los cuerpos representativos;
+c) El ejercicio directo del poder por el pueblo, mediante el referendum, las reuniones de electores, los consejos de ciudadanos, la participación de los ciudadanos en Ja
+
 
 ---
 
