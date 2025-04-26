@@ -120,7 +120,6 @@ Pero es visible que las instituciones ya existentes de autogobierno directo se a
 No sólo la aplicación que se les da crece, sino que los ciudadanos ponen en ellas un interés creciente. 
 Esta democratización de las instituciones por la gestión directa del pueblo trabajador presenta un interés evidente para la limitación del poder del Estado, para la transformación de los órganos y las funciones del Estado en funciones de autogobierno, para el desarrollo de la democracia socialista y la “desaparición paulatina del Estado”. 
 
-
 ## 8. EL AUTOGOBIERNO EN LAS COLECTIVIDADES LOCALES
 
 “'Una de las formas fundamentales del autogobierno del pueblo trabajador es el autogobierno en la comuna y el distrito.
@@ -197,52 +196,26 @@ De esta manera, la solidaridad entre productores y ciudadanos se ve reforzada.
 En sentido amplio, la gestión social es el autogobierno del pueblo trabajador. 
 En un sentido estrecho, pueden considerarse como instituciones de gestión social las organizaciones sociales libres que realizan las tareas de interés general para la comunidad. 
 La Ley constitucional emplea, en efecto, la expresión de “gestión social” para designar “el autogobierno en el dominio de la educación, de la cultura y de los servicios sociales” (artículo 4, fracción 2).
-Es a partir de 1950 cuando las instituciones relativas a la educación, a la ciencia, a la cultura y, en general, a los servicios sociales han empezado a eman
+Es a partir de 1950 cuando las instituciones relativas a la educación, a la ciencia, a la cultura y, en general, a los servicios sociales han empezado a emande la administración directa y de la tutela del Estado.
+
+Desde entonces, la Ley constitucional federal ha hecho de la gestión social en estos terrenos de actividad uno de los aspectos claves de la nueva organización.
+Por su parte, las Leyes constitucionales de las Repúblicas populares (federadas) han precisado y garantizado la aplicación de este principio. 
+Según el artículo 6 de estas leyes, el autogobierno del pueblo trabajador en esos terrenos se realiza al mismo tiempo a través de la acción de instituciones autónomas y mediante la presencia, en los organismos del Estado competentes en esas
+materias, de representantes de las organizaciones profesionales y de simples ciudadanos. 
+En el seno de los consejos instituidos al lado de las asambleas y comités populares es donde se realiza esta colaboración. Posteriormente, varias leyes han extendido la gestión social a otros terrenos (universidades, escuelas, teatro, salubridad pública, seguro social, etcétera).
+
+Puede decirse que hay gestión social cuando una institución no está dirigida únicamente por los representantes de su colectividad de trabajo, sino también por ciudadanos, representantes de la sociedad. 
+Esta definición estrecha no se aplica más que en el campo de Jas instituciones educativas, científicas y culturales, *
+En los servicios sociales, la gestión puede ser confiadada únicamente a los interesados y a sus representantes (gestión de las casas de habitación, institutos de seguro social, etcétera).
+
+En tanto que sistema, la gestión social se basa en los siguientes principios:
 
 
 
 
 
 
-
-
-
-
-
-
-
-
-Desde entonces, la Ley constitucional federal ha he-
-cho de la gestión social en estos terrenos de actividad
-uno de los aspectos claves de la nueva organización.
-Por su parte, las Leyes constitucionales de las Repúbli-
-cas populares (federadas) han precisado y garantizado
-la aplicación de este principio, Según el artículo 6 de
-estas leyes, el autogobierno del pueblo trabajador en esos
-terrenos se realiza al mismo tiempo a través de la ac-
-ción de instituciones autónomas y mediante la presen-
-cia, en los organismos del Estado competentes en esas
-materias, de representantes de las organizaciones pro-
-fesionales y de simples ciudadanos. En el seno de los
-consejos instituidos al lado de las asambleas y comi-
-tés populares es donde se realiza esta colaboración. Pos-
-teriormente, varias leyes han extendido la gestión social
-a otros terrenos (universidades, escuelas, teatro, salu-
-bridad pública, seguro social, etcétera).
-
-Puede decirse que hay gestión social cuando una
-institución no está dirigida únicamente por los repre- -
-sentantes de su colectividad de trabajo, sino también
-por ciudadanos, representantes de la sociedad. Esta de-
-finición estrecha no se aplica más que en el campo de
-Jas instituciones educativas, científicas y culturales, *
-En los servicios sociales, la gestión puede ser confiada -
-únicamente a los interesados y a sus representantes (ges- -
-tión de las casas de habitación, institutos de seguro
-social, etcétera).
-
-En tanto que sistema, la gestión social se basa en
-los siguientes principios:
+---
 
 a) Para la enseñanza, la ciencia y la Cultura, así
 como los servicios sociales, existen instituciones autó-
