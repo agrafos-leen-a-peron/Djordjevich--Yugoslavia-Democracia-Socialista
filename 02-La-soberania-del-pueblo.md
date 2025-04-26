@@ -109,370 +109,97 @@ El auto gobierno no se ha realizado todavía bajo la forma de una democracia dir
 Las principales modalidades de participación del pueblo trabajador consisten, pues, en la elección de los miembros de esos cuerpos, así como en el control de su actividad: responsabilidad política de los representantes ante sus electores, derechos
 de revocación de los representantes.
 
-No obstante, existen ciertas formas de participación
+No obstante, existen ciertas formas de participación existentes.
+No obstante, a diferencia de la Constitución de 1946, proclaman también el principio de la democracia directa y lo colocan en el mismo plano que el principio de representación. 
+En consecuencia, en el sistema político yugoslavo, no es exacto decir que el poder del pueblo trabajador sea ejercido exclusivamente por los órganos representativos, es más justo hablar de un “sistema combinado de parlamentarismo y democracia directa”, como el que había preconizado Lenin para la organización política de la comunidad socialista. 
+Las diversas instituciones de democracia semidirecta y directa tienen como fin impedir que el poder con base representativa se restrinja o se burocratice. 
+La democracia directa hace posible una acción política más amplia, más directa y más compléta de las masas populares. 
+
+Este proceso de democratización de la organización social y estatal está lejos de haber concluido y no podrían preverse desde ahora todas sus consecuen as. 
+Pero es visible que las instituciones ya existentes de autogobierno directo se afirman cada vez más y que su autoridad política no deja de aumentar. 
+No sólo la aplicación que se les da crece, sino que los ciudadanos ponen en ellas un interés creciente. 
+Esta democratización de las instituciones por la gestión directa del pueblo trabajador presenta un interés evidente para la limitación del poder del Estado, para la transformación de los órganos y las funciones del Estado en funciones de autogobierno, para el desarrollo de la democracia socialista y la “desaparición paulatina del Estado”. 
 
 
+## 8. EL AUTOGOBIERNO EN LAS COLECTIVIDADES LOCALES
 
+“'Una de las formas fundamentales del autogobierno del pueblo trabajador es el autogobierno en la comuna y el distrito.
+Es lo que expresa, en el derecho yugoslavo, el principio de la “Comuna” o principio del “autogobierno comunal”.
 
+Teórica e históricamente, el autogobierno local se origina en la democracia. 
+Por una parte, el derecho del pueblo a: gobernarse a sí mismo se realiza más fácil y completamente en el seno de las comunidades reducidas que en amplios territorios centralizados. 
+Por otra parte, el autogobierno local representa un debilitamiento y una limitación del centralismo administrativo; 
+finalmente, se ha reconocido en este sistema, en el curso de la historia, un medio eficaz de impedir el divorcio de los
+órganos sociales y de la sociedad, divorcio inmanente a todo régimen estatal, aunque sea el más democrático.
 
-
-
-
----
-
-de votada la Constitución y, en particular,
-
-las leyes sobre los comités populares de 1946 y 1949,-se
-instituyeron ciertas formas de democracia directa 0
-semi-directa, tales como las reuniones de electores, los
-consejos y comisiones de ciudadanos junto a los comi-
-tés populares, etc. La Ley sobre la organización de los
-tribunales, votada inmediatamente después de la Cons-
-titución, establece lo que se llama “el tribunal laico”
-mediante la introducción, en los consejos de los tribu-
-nales de distrito y de departamento, de jurados 1ue…
-participan en el procedimiento y el juicio, al lado de los
-jueces profesionales y con los mismos derechos.
-
-El periodo que va de la votación de la Constitución
-a la entrada en vigor de las nuevas leyes constituciona=
-les se caracteriza, pues, por una tendencia a la democra-
-tización del poder. Gracias a la implantación y el re
-fuerzo de la autogestión de los productores y a los cam»
-bios introducidos en la sociedad y la economía, la nueva
-Ley constitucional pudo plantear el principio de la sobe-
-ranía popular de una manera todavía más clara y con-
-secuente. y
-
-La Ley constitucional federal de 1953 declaraba, en
-su artículo 2, fracción 1, el principio de que “en la Re-
-
-cuales el pueblo trabajador puede realizar este poder,
-organizarlo y participar en su ejercicio. El artículo 2
-fracción 2, enumera los derechos del ciudadano y las
-instituciones políticas mediante las cuales el pucblo tra-
-bajador administra los asuntos de la sociedad. Son
-éstos: a) Los cuerpos. representativos: comités y asar-.
-bleas populares, consejos obreros y otros órganos de:
-autogobierno; b) La elección y la revocación por el pue
-blo de sus representantes en los cuerpos representativos;
-C) El ejercicio directo del poder por el pueblo, mediante
-el referendum, las reuniones de electores, los consejos
-de ciudadanos, la participación de los ciudadanos en la
-— administración y la jurisdicción y en otras formas de
-“ gestión directa ya existente o por erearse.
-
-Sin duda, no es una concepción nueva de la sobera-
-nía popular la así definida, Pero la Ley se distingue de
-todas las demás constituciones conocidas, inclusive las
-que han proclamado la soberanía del pueblo trabajador,
-por el amplio campo que asigna a esta soberanía y el
-Ppapel activo que reserva a su titular.
-
-La Ley subraya, primero, que la soberanía implica
-no ' sólo el ejercicio del poder político, sino también la
-gestión de las cuestiones sociales. Supera, así, a las
-
-N constituciones que dejan la gestión de las cuestiones so-
-Ciales fuera de la soberanía popular. Esta gestión y,
-Sobre todo, la referida a la cconomía, es considerada por
-las otras constituciones, bien como correspondiente a la
-iniciativa privada de los individuos (capitalismo libe-
-ral), o como dependiente de las instituciones de derecho
-público y de las corporaciones (capitalismo de monopo-
-lio), o competencia de los Órganos del Estado, del poder
-político (capitalismo de Estado en todas sus formas).
-
-En los países de capitalismo clásico, la reducción de
-la soberanía nacional a una soberanía puramente polí-
-tica es la consecuencia de los principios fundamentales
-de la organización económica. La propiedad de los me-
-dios de producción, de la que se desprende el derecho
-de los propietarios a disponer de los productos del tra-
-bajo humano, no es tomada en consideración por el
-derecho público sino en tanto que se trata de asegurar
-Su protección, como la de todos los derechos individua-
-les. La Constitución no regula su ejercicio, ya que mi-
-naría así los principios mismos del régimen capitalista.
-ES lógico e inevitable, pues, que un sistema constitu-
-cional fundado en el derecho privado de propiedad
-reduzca la soberanía popular a una soberanía política.
-En una sociedad semejante, como decía Marx, sólo la
-emancipación política ha sido realizada, pero no la eman-
-Cipación social. La política se ha hecho cosa común,
-pero no la economía ni la sociedad.
-
-En una Constitución basada en el capitalismo de
-Estado, la “soberanía del pueblo trabajador” queda re-
-y —
-ducida igualmente a la soberanfa política, como …f<'
-cuencia lógica de los principios del régimen que, aunque -
-diferentes, conducen a ese mismo resultado. El dere-
-cho, que allí pertenece a los órganos del Estado, de
-administrar los medios de producción y los productos
-del trabajo humano aleja inevitablemente a los produc-
-tores de la gestión de las cuestiones sociales y reduce
-la soberanía exclusivamente a una noción política.
-
-Pero el sistema constitucional yugoslavo no se carac-
-teriza sólo por esta extensión cuantitativa del alcance
-de la soberanía popular; modifica también, cualitativa-
-mente, la naturaleza de ésta. La soberanía se vuelve de
-naturaleza social tanto como política. Engloba todas
-las formas de autogobierno político, económico y social.
-(El autogobierno social es la gestión popular de las ins= —
-tituciones de carácter puramente social tales como las
-instituciones de enseñanza, de investigación científica o
-de difusión cultural.) Esta transformación de la sobera-
-nía del pueblo trabajador es la consecuencia lógica y ne-
-cesaria de las modificaciones introducidas en las rela-
-ciones de propiedad, como consecuencia del autogobierno:
-de los productores. Pero, por otra parte, el poder polf-
-tico mismo se socializa, en la medida en que está for-
-mado desde entonces, no sólo por la representación
-política de los ciudadanos (por medio de la cual el pue
-blo trabajador aseguraba, por intermedio de su vanguar
-dia, la preponderancia de las fuerzas sociales y la adop-
-ción de decisiones socialistas), sino también por la
-representación directa de los productores —de aquellos
-que ejercen las funciones económicas del socialismo.
-
-Gracias a esta doble representación, el sistema yugos-
-lavo asegura un papel dirigente a la clase obrera, de
-una manera democrática y, por así decirlo, “natural”, en
-lugar de.hacerlo de manera autoritaria, mediante la dic-
-tadura de un partido único. Hablando de este nuevo
-contenido de la soberanía del pueblo trabajador, Kardelj
-escribe: “Este papel dirigente [de la clase obrera] no
-es asegurado ya por la Ley constitucional, antes que
-nada, gracias a las posiciones reservadas a su vanguar-
-dia política en el aparato administrativo —lo que, en
-último análisis, como se ha visto en la URSS, lleva al -
-burocratismo de la vanguardia misma, a su fusión con
-el aparato administrativo del Estado Y, en definitiva,
-a la separación de Ja administración del Estado y la
-clase obrera—, sino mediante el autogobierno de Jos tra-
-bajadores, en las empresas y las demás organizaciones
-económicas, y por el control directo que las masas obre-
-Tras, a través de sus órganos representativos, ejercen so-
-bre la ocupación y la distribución del ingreso nacional.”1
-
-De una manera general, puede decirse que al adoptar
-el principio de autogobierno, la Ley constitucional ha
-puesto en práctica una fórmula activa y positiva de so-
-beranía del pueblo trabajador.
-
-No hay verdadero autogobierno, en efecto, que no
-ea concebido como un derecho individual, el derecho
-del ciudadano a ser no sólo poseedor pasivo de de
-Techos políticos, sino también un creador, un partici-
-pante activo en la formación y la gestión de las institu-
-Ciones sociales. Igualmente la cultura, la instrucción, la
-libertad de expresión y de organización, el interés ma.
-terial, etc., deben ser considerados por el ciudadano
-Como tantas otras condiciones previas a la realización
-del autogobierno,
-
-Sin duda, la Ley constitucional no ha cambiado (no
-podía hacerlo) la forma del poder ni de la gestión. Los
-Órganos de base de la soberanía siguen siendo represen-
-tativos: comités populares y asambleas populares, con-
-sejos obreros y otros órganos representativos. El auto-
-gobierno no se ha realizado todavía bajo la forma de
-una democracia directa. Las principales modalidades
-de participación del pueblo trabajador consisten, pues,
-en la elección de los miembros de esos cuerpos, así
-como en el control de su actividad: responsabilidad po-
-lítica de los representantes ante sus electores, derechos
-de revocación de los representantes.
-
-No obstante, existen ciertas formas de participación
-
--
-existentes.
-No obstante, a diferencia de la Constitución de 1946, —
-proclaman también el principio de la democracia di-
-recta y lo colocan en el mismo plano que el principio —
-de representación. N
-En consecuencia, en el sistema político yugoslavo, no —
-es exacto decir que el poder del pueblo trabajador sea !
-ejercido exclusivamente por los órganos representativos, -
-Es más justo hablar de un “sistema combinado de par —
-Jamentarismo y democracia directa”, como el que había —
-preconizado Lenin para la organización política de la -
-comunidad socialista. Las diversas instituciones de de-
-mocracia semidirecta y directa tienen como fin impedir
-que el poder con base representativa se restrinja 0 se -
-burocratice. La democracia directa hace. posible una
-acción política más amplia, más directa y más compléta -
-de las masas populares. *
-Este proceso de democratización de la organización —
-social y estatal está lejos de haber concluido y no dpc&
-drían preverse desde ahora todas sus consecuen as. —
-Pero es visible que las instituciones ya existentes de
-autogobierno directo se afirman cada vez más y que su -
-autoridad política no deja de aumentar. No sólo la apli- 5'
-cación que se les da crece, sino que los ciudadanos ponen —
-en ellas un interés creciente. Esta democratización de -
-las instituciones por la gestión directa del pueblo tra-
-bajador presenta un interés evidente para la limitación- ;
-del poder del Estado, para la transformación de los ór- -
-ganos y las funciones del Estado en funciones de auto- f
-gobierno, para el desarrollo de la democracia socialista
-y la “desaparición paulatina del Estado”. _F
-
-4 7 u X J
-8. EL AUTOGOMERNO EN LAS CoLECTIVIDADES LocatEs
-
-“'Una de las formas fundamentales del autogobierno del
-pueblo trabajador es el autogobierno en la comuna yel
-distrito.. Es lo que expresa, en el derecho yugoslavo,
-
-el principio de la “Comuna” o principio del “autogo- -
-
-bierno comunal”.
-
-Teórica e históricamente, el autogobierno local se
-Origina en la democracia. Por una parte, el derecho del
-pueblo a: gobernarse a sí mismo se realiza más fácil y
-completamente en el seno de las comunidades reduci-
-das que en amplios territorios centralizados. Por otra
-parte, el autogobierno local representa un debilitamiento
-y una limitación del centralismo administrativo; final-
-mente, se ha reconocido en este sistema, en el curso de
-la historia, un medio eficaz de impedir el divorcio de los
-órganos sociales y de la sociedad, divorcio inmanente
-a todo régimen estatal, aunque sea el más democrático.
-
-Estas justificaciones tradicionales han sido tomadas
-en cuenta por la teoría yugoslava del autogobierno co-
-munal. Pero éste ha añadido numerosos elementos nue-
-vos, cuya importancia va en aumento.
+Estas justificaciones tradicionales han sido tomadas en cuenta por la teoría yugoslava del autogobierno comunal. 
+Pero éste ha añadido numerosos elementos nuevos, cuya importancia va en aumento.
 
 Estos clementos son los siguientes:
 
-1) El autogobierno del pueblo trabajador en las co-
-munidades locales es el fundamento de todo el sistema
-político yugoslavo. Este postulado ha sido explícitamen-
-te formulado por la Ley constitucional (artículo 4, frac-
-ción 1). En consecuencia, las comunidades locales deben
-poseer un mecanismo desarrollado de autogobierno, debe
-asignárseles el desempeño de importantes funciones es-
-tatales y sociales y tienen que disponer de medios ma-
-teriales suficientes para cumplir estas funciones. Así
-las ciudades y las uniones de pequeñas poblaciones que,
-en Yugoslavia, llevan el nombre francés de “comunas”
-(en recuerdo de la Comuna de París), forman las célu-
-las de base del autogobierno.
+1) El autogobierno del pueblo trabajador en las comunidades locales es el fundamento de todo el sistema
+político yugoslavo.
+Este postulado ha sido explícitamente formulado por la Ley constitucional (artículo 4, fracción 1).
+En consecuencia, las comunidades locales deben poseer un mecanismo desarrollado de autogobierno, debe asignárseles el desempeño de importantes funciones estatales y sociales y tienen que disponer de medios materiales suficientes para cumplir estas funciones.
+Así las ciudades y las uniones de pequeñas poblaciones que, en Yugoslavia, llevan el nombre francés de “comunas”
+(en recuerdo de la Comuna de París), forman las células de base del autogobierno.
 
-2) El autogobierno comunal es, igualmente, la base
-de la organización política y administrativa del Estado.
-Sólo respetando esta condición podrá transformarse la
-antigua administración burocrática de los hombres y las
-cosas en “sistema comunal democrático”, que garantice
-la soberanía efectiva del pueblo.
+3) El autogobierno comunal es, igualmente, la base de la organización política y administrativa del Estado.
+Sólo respetando esta condición podrá transformarse la antigua administración burocrática de los hombres y las
+cosas en “sistema comunal democrático”, que garantice la soberanía efectiva del pueblo.
 
-3) El autogobierno comunal transforma la estructu-
-ra del Estado tradicional. Abre el camino, tanto en prin-
-cipio como en la práctica, al autogobierno del pueblo. La
-concepción tradicional del Estado, en cuanto “expresión
-suprema” de la sociedad —concepción nacida en Roma
-y realizada en el Estado romano, recogida más tarde
-por Ja monarquía absoluta, por los jacobinos y por el
-Estado burgués—, es esencialmente centralista. Parte
-del punto de vista de que la organización política de la
-sociedad es el producto de ciertas ideas racionales, ela-
-boradas en los cerebros humanos e impuestas mecáni-
-camente a la realidad social “desde arriba”, a través de
-la autoridad. Según esta concepción, son los órganos -
-centrales del Estado los que manejan el poder, los que
-poseen la fuerza para crear el derecho y decidir la po-
-lítica. En otros tiempos fue el monarca, hoy es el
-Parlamento el que posee el poder legislativo, fuente
-de toda organización política y jurídica. El hombre no
-se hace ciudadano y no adquiere derechos sino gracias
-al Parlamento que es, según el pensador inglés Bos:
-quet, una “fábrica de derecho”. Inclusive el autogobier-
-no local, cuando existe —como en Inglaterra—, no es
-más que una creación de la voluntad —de la “buena vo-
-luntad”— del Parlamento.
+4) El autogobierno comunal transforma la estructura del Estado tradicional.
+5) Abre el camino, tanto en principio como en la práctica, al autogobierno del pueblo.
+6) La concepción tradicional del Estado, en cuanto “expresión suprema” de la sociedad —concepción nacida en Roma
+y realizada en el Estado romano, recogida más tarde por la monarquía absoluta, por los jacobinos y por el
+Estado burgués—, es esencialmente centralista.
+Parte del punto de vista de que la organización política de la sociedad es el producto de ciertas ideas racionales, elaboradas en los cerebros humanos e impuestas mecánicamente a la realidad social “desde arriba”, a través de
+la autoridad.
+Según esta concepción, son los órganos centrales del Estado los que manejan el poder, los que
+poseen la fuerza para crear el derecho y decidir la política.
+En otros tiempos fue el monarca, hoy es el Parlamento el que posee el poder legislativo, fuente de toda organización política y jurídica. El hombre no se hace ciudadano y no adquiere derechos sino gracias al Parlamento que es, según el pensador inglés Bosanquet, una “fábrica de derecho”.
+Inclusive el autogobierno local, cuando existe —como en Inglaterra—, no es más que una creación de la voluntad —de la “buena voluntad”— del Parlamento.
 
-La Constitución yugoslava parte, por el contrario, de
-una concepción “comunalevolutiva”. La organización
-social y política es concebida como una especie de aso-
-ciación de productores, ligados vertical y horizontal-
-mente, es decir, económica y políticamente. En la base
-de este sistema se encuentra la comuna, que es la aso-
-ciación orgánica de las instituciones culturales, econó-
-micas y sociales así como de las unidades autónomas
-de productores y ciudadanos, que constituyen las célu-
-las, al mismo tiempo originales y originarias de la so-
-ciedad yugoslava.
+La Constitución yugoslava parte, por el contrario, de una concepción “comunalevolutiva”. 
+La organización social y política es concebida como una especie de asociación de productores, ligados vertical y horizontalmente, es decir, económica y políticamente. 
+En la base de este sistema se encuentra la comuna, que es la asociación orgánica de las instituciones culturales, económicas y sociales así como de las unidades autónomas de productores y ciudadanos, que constituyen las células, al mismo tiempo originales y originarias de la sociedad yugoslava.
 
-Estas concepciones explican por qué la Ley consti-
-tucional declara que los “Comités populares son los ór-
-ganos de base del poder del pueblo trabajador y los
+Estas concepciones explican por qué la Ley constitucional declara que los “Comités populares son los órganos de base del poder del pueblo trabajador y los órganos supremos del poder de la comuna y del distrito”.
+Por otra parte, la Federación y las Repúblicas Populares “no poseen más que los derechos fijados por la Constitución”. 
+La competencia de las comunas se extiende a todos los asuntos relacionados con la vida, el trabajo y los derechos de la población, sin que éstos estén limitativamente determinados.
 
-h
+4) Marx consideraba que una de las principales ventajas de la Comuna autónoma era favorecer, más que ninguna otra formación social, “la emancipación del trabajo”.
+Esto supone que la Comuna autónoma esté fundada en la propiedad social de los medios de producción,
+en el autogobierno de los productores en la economía y en la supresión progresiva de toda explotación del
+hombre por el hombre.
+El sistema comunal no puede formarse ni desarrollarse sin una base socialista y sin una solidaridad creciente de los trabajadores, promovidos al mismo tiempo al rango de ciudadanos activos.
 
-4
-.
-r
-.
-j
+La comuna autónoma no es sólo la base; es también parte integrante de un sistema político único. 
+La comuna autónoma no se opone y no puede oponerse a los otros escalones de la democracia socialista. 
+Si se separara de este sistema, si se transformara en célula aislada, en un “Estado dentro del Estado”, perdería inevitablemente el apoyo y la fuerza que recibe del conjunto de la comunidad. 
+Por otra parte, sin democratización generalizada, sin la aplicación del autogobierno en todos los niveles de la organización política y social, la autonomía comunal amenazada; no podría desarrollarse- 
+La formación de las comunas no tiene por objeto dividir y dislocar a la sociedad, sino unirla sobre una base lo más libre, lo más consciente y real poSible. 
+Las comunas no pueden consolidarse ni desarrollarse; pues, sino en una sociedad donde las relaciones sean socialistas, donde el autogobierno del pueblo trabajador se aplique en todos los terrenos y en todos los niveles.
 
-u
-“
+Las principales funciones de la comuna consisten en “la armonización de los intereses generales y los intereses individuales”. “Los intereses generales” son, al
 
-P
 
-Constitución”. La competencia de las comunas se ex-
-tiende a todos los asuntos relacionados con la vida, el
-trabajo y los derechos de la población, sin que éstos
-estén limitativamente determinados.
 
-4) Marx consideraba que una de las principales ven-
-tajas de la Comuna autónoma era favorecer, más que
-hinguna otra formación social, “la emancipación del tra-
-bajo”. Esto supone que la Comuna autónoma esté funda-
-da en la propiedad social de los medios de producción,
-en el autogobierno de los productores en la economía
-y en la supresión progresiva de toda explotación del
 
-* hombre por el hombre. El sistema comunal no puede
 
-formarse ni desarrollarse sin una base socialista y sin
-una solidaridad creciente de los trabajadores, promovi-
-dos al mismo tiempo al rango de ciudadanos activos.
-La comuna autónoma no es sólo la base; es también
-parte integrante de un sistema político único. La co-
-— muna autónoma no se opone y no puede oponerse a los
-otros escalones de la democracia socialista. Si se sepa-
-rara de este sistema, si se transformara en célula aisla-
-da, en un “Estado dentro del Estado”, perdería inevita-
-blemente el apoyo y la fuerza que recibe del conjunto
-_ de la comunidad. Por otra parte, sin democratización
-generalizada, sin la aplicación del autogobierno en to-
-dos los niveles de la organización política y social, la
-autonomía comunal sería amenazada; no podría des-
-arrollarse- La formación de las comunas no tiene por
-objeto dividir y dislocar a la sociedad, sino unirla so-
-bre una base lo más libre, lo más consciente y real po-
-sible. Las comunas no pueden consolidarse ni desarro-
-llarse, pues, sino en una sociedad donde las relaciones
-sean socialistas, donde el autogobierno del pueblo tra-
-“bajador se aplique en todos los terrenos y en todos los
-niveles.
-Las principales funciones de la comuna consisten en
 
-- la armonización de los intereses generales y los inte-
 
-reses individuales”. “Los intereses generales” son, al
 
-|
-l
-f
-Tpo, | 1 es de -
+
+
+
+
+
+
+
+
+
+
 munidad estatal en su conjunto;
 duales” son los de las empresas cconómicas y los ob
 ros y empleados que trabajan en ellas. La comuna
