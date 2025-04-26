@@ -1,121 +1,56 @@
-II. LA SOBERANÍA DEL PUEBLO
+# II. LA SOBERANÍA DEL PUEBLO
 
-7. La SOBErANÍA POPULAR Y El AUTOGOBIERNO
+## 7. La SOBErANÍA POPULAR Y El AUTOGOBIERNO
 
-La idea de la soberanía nacional es de fecha relati-
-Vamente reciente en la historia del Estado. Es el pro-
-ducto de la filosofía política del siglo xviIr, que la con-
-Cibió como antítesis de la soberanía del príncipe. Fue
-utilizada como arma por el Tercer Estado, formado por
-la alianza democrática de la burguesía y las masas po-
-pulares, en la Jucha contra los privilegios políticos de la
-nobleza feudal y la Telesia y contra el absolutismo del
-Tey. El principio de la soberanía nacional fue proclama-
-do por primera vez en las Declaraciones de Derechos de
-la Revolución norteamericana y la Revolución francesa.
-Actualmente, más de sesenta y dos constituciones, o sea,
-más de Jas dos terceras partes de las constituciones
-existentes, se fundan en ese principio. La mayoría de
-estas constituciones lo formulan de una manera que se
-ha 'hecho clásica: “El poder emana del pueblo y perte-
-nece al pueblo.” Otras proclaman la soberanía de la
+La idea de la soberanía nacional es de fecha relativamente reciente en la historia del Estado. 
+Es el producto de la filosofía política del siglo xviIr, que la concibió como antítesis de la soberanía del príncipe. 
+Fue utilizada como arma por el Tercer Estado, formado por la alianza democrática de la burguesía y las masas populares, en la Jucha contra los privilegios políticos de la nobleza feudal y la Telesia y contra el absolutismo del rey. 
+El principio de la soberanía nacional fue proclamado por primera vez en las Declaraciones de Derechos de la Revolución norteamericana y la Revolución francesa.
+Actualmente, más de sesenta y dos constituciones, o sea, más de Jas dos terceras partes de las constituciones existentes, se fundan en ese principio. 
+La mayoría de estas constituciones lo formulan de una manera que se ha 'hecho clásica: “El poder emana del pueblo y pertenece al pueblo.” 
+Otras proclaman la soberanía de la hación y no la del pueblo, como las constituciones de Chile, de Costa Rica, de Luxemburgo, de Portugal, de Siría, de Tailandia. 
+Algunas, siguiendo el ejemplo de la U Constitución soviética, ponen en primer lugar la noción de clase. 
+La Constitución de la URSS insíste en la soberanía del pueblo trabajador de las ciudades y del campo. 
+Esta fórmula se encuentra en todas las constituciones hechas a imitación de la Constitución soviética. 
+La Constitución de la República Popular de Mongolia proclama la soberanía de “los obreros de las ciudades y del campo”. 
+La Constitución de Haití habla de la de “la comunidad de los ciudadanos”. 
+Por otra parte, algunas constituciones se refieren a una soberanía combinada: 
+la soberanía del pueblo y la del monarca. 
+La Constitución de Irán proclama que el poder es confiado al monarca por el pueblo; 
+la de Trak, que el poder es confiado por el pueblo al rey. 
+En las constituciones de Afganistán, Australia, Canadá, Ceilán, Dinamarca (antes de la reforma de 1953), de Nueva Zelanda, los Países Bajos, Noruega, Pakistán, Suecia, Africa del Norte y Gran Bretaña, el principio de la soberanía
+combinada del pueblo y el monarca es formulado igualmente en formas diversas. 
+En la mayoría de estas constituciones, adoptadas hace más de un siglo, y en particular en las constituciones de Gran Bretaña y los países escandinavos, estas fórmulas reflejan las ideas en vigor en esa época, pero no corresponden a la realidad de
+nuestra época. 
+El poder se funda en la actualidad en la soberanía popular.
 
-hación y no la del pueblo, como las constituciones de
+Pero no puede juzgarse sólo sobre la base del texto constitucional para determinar si la soberanía pertenece realmente al pueblo. 
+No puede dudarse que, en un régimen social donde el poder económico pertenece a un número limitado de propietarios privados o a una casta dirigente de burocracia privilegiada, la soberanía popular no es más que una ficción, aunque sca proclamada
+en la Constitución. 
+La comprobación de su realidad no puede resultar sino de un análisis general y objetivo de la organización socio-económica y política del país en cuestión y, en particular, de un análisis de la estructura de las relaciones de propiedad, del papel real del ciudadano, de su papel social y político. 
+Es un hecho que ha habido y hay todavía constituciones que no son respetadas e inclusive que algunas tienen la finalidad de cubrir una realidad muy diferente de la que pintan.
 
-Chile, de Costa Rica, de Luxemburgo, de Portugal, de Si-
-ría, de Tailandia. Algunas, siguiendo el ejemplo de la
+A pesar de todo, la proclamación de la soberanía nacional o popular por las constituciones políticas ha sido un progreso en la historia de la humanidad; 
+ha sido el resultado del desarrollo político de la sociedad que se liberaba del feudalismo, la consecuencia de la importancia creciente del papel asumido por las masas trabajadoras, la conquista difícil de los movimientos democráticos y progresistas. 
+El principio de la soberanía popular supone y exige que la organización estatal tenga las características siguientes: a) Un parlamento elegido como centro del poder político; b) El sufragio universal, es decir, el derecho de voto asegurádo sin discriminación de clase.
 
-U Constitución soviética, ponen en primer lugar la noción
+La Constitución yugoslava de 1946, al proclamar el principio de la soberanía popular, superaba ya la forma clásica que hace de ésta un simple postulado filosófico-político, sin determinación de las condiciones y las garantías de su realización completa. 
+El artículo 6 contenía la siguiente disposición : “El pueblo ejerce su poder a traves de los órganos representativos del poder del Estado, libremente elegidos. 
+Estos órganos, desde los comités populares locales hasta las asambleas de las Repúblicas populares y la Asamblea de la República Federativa Popul Yugoslavia, nacieron y se desarrollaron en la lucha por la Liberación nacional, dirígida
+contra el nazismo y la reacción y representan la conquista fundamental de esta lucha.” 
+El artículo 7 añade que “todos los órgamos representativos del poder del Estado son elegidos por los ciudadanos, por sufragio
+Universal, igual y directo y por escrutinio secreto” y que “los representantes del pueblo son responsables ante sus electores y pueden ser revocados por estos. 
+Se desprende, pues, que la soberanía popular revestia dos rasgos característicos. 
+Significaba, en primer lugar, institución de un nuevo poder de las masas populares, con la clase obrera a la cabeza. Significa, después, que este poder popular sería organizado dentro de un sistema de cuerpos representativos democráticos —comités y asambieas populares— análogo al que se había constituido en el curso de la revolución, por responder mejor
+a las aspiraciones democráticas de las masas trabajadoras.
 
-de clase. La Constitución de la URSS insíste en la so-
-beranía del pueblo trabajador de las ciudades y del
-'ampo. Esta fórmula se encuentra en todas las consti-
-tuciones hechas a imitación de la Constitución sovié-
-tica. La Constitución de la República Popular de Mongo-
-lia proclama la soberanía de “los obreros de las ciudades
+Si la Constitución de 1946 daba en principio una base representativa al poder del Estado, no excluía sin
+embargo ciertas formas de democracia directa. 
+Así, estatuia el referendum para las cuestiones de competencia federal o de las Repúblicas federadas. 
+Ignoraba, por otra parte, el referendum local. 
+Pero el artículo 109 declaraba: “Los comités populares están obligados, en la realización de sus tareas generales y locales, a apoyarse en la iniciativa y la amplia participación de las masas
 
-Uy del campo”. La Constitución de Haití habla de la
-
-a de “la comunidad de los ciudadanos”. Por
-otra parte, algunas constituciones se refieren a una so-
-beranía combinada: la soberanía del pueblo y la del
-monarca. La Constitución de Irán proclama que el po-
-der es confiado al monarca por el pueblo; la de Trak,
-
-,
-que el poder es confiado por el pueblo al rey. En las —
-constituciones de Afganistán, Australia, Canadá, Ceilán, -
-Dinamarca (antes de la reforma de 1953), de Nueva Ze-
-Janda, los Países Bajos, Noruega, Pakistán, Suecia, Afri-
-ca del Norte y Gran Bretaña, el principio de la soberanía
-combinada del pueblo y el monarca es formulado igual-
-mente en formas diversas. En la mayoría de estas cons-
-tituciones, adoptadas hace más de un siglo, y en parti
-cular en las constituciones de Gran Bretaña y los países
-escandinavos, estas fórmulas reflejan las ideas en vigor
-en esa época, pero no corresponden a la realidad de
-nuestra época. El poder se funda en la actualidad en la
-soberanía popular.
-
-Pero no puede juzgarse sólo sobre la base del texto
-constitucional para determinar si la soberanía perte-
-nece realmente al pucblo. No puede dudarse que, en uñ
-régimen social donde el poder económico pertenece a
-un número limitado de propietarios privados o a una cas-
-ta dirigente de burocracia privilegiada, la soberanía po-
-pular no es más que una ficción, aunque sca proclamada
-en la Constitución. La comprobación de su realidad no
-puede resultar sino de un análisis general y objetivo de
-la organización socio-económica y política del país en
-cuestión y, en particular, de un análisis de la estructura
-de las relaciones de propiedad, del papel real del citk
-dadano, de su papel social y político. Es un hecho que
-ha habido y hay todavía constituciones que no son res-
-petadas e inclusive que algunas tienen la finalidad de
-cubrir una realidad muy diferente de la que pintan.
-
-A pesar de todo, la proclamación de la soberanía na-
-cional o popular por las constituciones políticas ha sido
-un progreso en la historia de la humanidad; ha sido el
-resultado del desarrollo político de la sociedad que se
-liberaba del feudalismo, la consecuencia de la impor-
-tancia creciente del papel asumido por las masas traba=
-jadoras, Ja conquista difícil de los movimientos demo-
-cráticos y progresistas. El principio de la soberanía
-popular supone y exige que la organización estatal tenga
-las características siguientes: a) Un parlamento elegido
-como centro del poder político; b) El sufragio universal,
-s decir, el derecho de voto asegurádo sin discriminación
-de clase.
-
-La Constitución yugoslava de 1946, al proclamar el
-
-quista fundamental de esta lucha.” El artículo 7 añade
-que “todos los órganos representativos del poder del
-Estado son elegidos por los ciudadanos, por sufragio
-Universal, igual y directo y por escrutinio secreto” y
-
-institución de un nuevo poder de las masas populares,
-Con la clase obrera a la cabeza. Significa, después, que
-Este poder popular sería organizado dentro de un sistema
-de cuerpos representativos democráticos —comités y
-asambleas populares— análogo al que se había consti-
-tuido en el curso de la revolución, por responder mejor
-a las aspiraciones democráticas de las masas trabaja-
-doras.
-
-Si la Constitución de 1946 daba en principio una
-base representativa al poder del Estado, no excluía sin
-embargo ciertas formas de democracia directa. Así, es-
-tatuía el referendum para las cuestiones de competencia
-federal o de las Repúblicas federadas. Tenoraba, por otra
-parte, el referendum local. Pero el artículo 109 decla-
-raba: “Los comités populares están obligados, en la
-realización de sus tareas generales y locales, a apoyarse
-en la iniciativa y la amplia participación de las masas
-u ) EA NR AZE yYE RN UN
-- as de A
-Bo$_nn;'y=n s organizaciones del pueblo
+---
 
 de votada la Constitución y, en particular,
 
