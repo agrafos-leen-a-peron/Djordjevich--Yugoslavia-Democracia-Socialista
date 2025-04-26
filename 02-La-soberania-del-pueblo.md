@@ -191,7 +191,7 @@ Este principio es atemperado por la existencia de las normas del Estado y por el
 El producto de la empresa es considerado como el producto de la sociedad. 
 De esta manera, la solidaridad entre productores y ciudadanos se ve reforzada.
 
-9. GESTIÓN SOCIAIL Y ASOCIACIONES LIBRES DEL PUEBLO TRABAJADOR
+## 9. GESTIÓN SOCIAL Y ASOCIACIONES LIBRES DEL PUEBLO TRABAJADOR
 
 En sentido amplio, la gestión social es el autogobierno del pueblo trabajador. 
 En un sentido estrecho, pueden considerarse como instituciones de gestión social las organizaciones sociales libres que realizan las tareas de interés general para la comunidad. 
@@ -210,22 +210,14 @@ En los servicios sociales, la gestión puede ser confiadada únicamente a los in
 
 En tanto que sistema, la gestión social se basa en los siguientes principios:
 
+a) Para la enseñanza, la ciencia y la Cultura, así como los servicios sociales, existen instituciones autónomas, La amplitud de la autonomía depende del papel de la institución. 
+No se trata de una autonomía administrativa, en el sentido clásico de la palabra, ya que las instituciones autónomas no forman parte de la administración del Estado y no están regidas por el derecho administrativo. 
+Son instituciones sociales independientes, regidas por un derecho nuevo en formación: el dere
 
 
 
 
 
----
-
-a) Para la enseñanza, la ciencia y la Cultura, así
-como los servicios sociales, existen instituciones autó-
-nomas, La amplitud de la autonomía depende del papel
-de la institución. No se trata de una autonomía admi-
-Distrativa, en el sentido clásico de la palabra, ya que las
-instituciones autónomas no forman parte de la admi-
-nNistración del Estado y no están regidas por el derecho
-administrativo. Son instituciones sociales independien-
-tes, regidas por un derecho nuevo en formación: el dere-
 EA TN o
 que sei la desapari paulatina
 Estado. m
