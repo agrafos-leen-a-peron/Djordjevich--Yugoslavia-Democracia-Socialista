@@ -1,6 +1,6 @@
 # II. LA SOBERANÍA DEL PUEBLO
 
-## 7. La SOBErANÍA POPULAR Y El AUTOGOBIERNO
+## 7. LA SOBERANÍA POPULAR Y EL AUTOGOBIERNO
 
 La idea de la soberanía nacional es de fecha relativamente reciente en la historia del Estado. 
 Es el producto de la filosofía política del siglo xviIr, que la concibió como antítesis de la soberanía del príncipe. 
