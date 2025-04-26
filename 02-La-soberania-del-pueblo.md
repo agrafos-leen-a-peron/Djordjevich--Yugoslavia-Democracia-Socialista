@@ -59,7 +59,79 @@ La Ley constitucional federal de 1953 declaraba, en su artículo 2, fracción 1,
 Para evitar que este principio sea puramente verbal, la Ley constitucional determina los medios a través de los cuales el pueblo trabajador puede realizar este poder, organizarlo y participar en su ejercicio. 
 El artículo 2, fracción 2, enumera los derechos del ciudadano y instituciones políticas mediante las cuales el pueblo trabajador administra los asun de la sociedad. 
 Son éstos: a) Los cuerpos representativos: comités y asambleas populares, consejos obreros y otros órganos de autogobierno; b) La elección y la revocación por el pueblo de sus representantes en los cuerpos representativos;
-c) El ejercicio directo del poder por el pueblo, mediante el referendum, las reuniones de electores, los consejos de ciudadanos, la participación de los ciudadanos en Ja
+c) El ejercicio directo del poder por el pueblo, mediante el referendum, las reuniones de electores, los consejos de ciudadanos, la participación de los ciudadanos en la administración y la jurisdicción y en otras formas de gestión directa ya existente o por crearse.
+
+Sin duda, no es una concepción nueva de la soberanía popular la así definida. 
+Pero la Ley se distingue de todas las demás constituciones conocidas, inclusive las que han proclamado la soberanía del pueblo trabajador, por el amplio campo que asigna a esta soberanía y el papel activo que reserva a su titular.
+
+La Ley subraya, primero, que la soberanía implica no sólo el ejercicio del poder político, sino también la gestión de las cuestiones sociales. 
+Supera, así, a las constituciones que dejan la gestión de las cuestiones sociales fuera de la soberanía popular. 
+Esta gestión y, sobre todo, la referida a la cconomía, es considerada por las otras constituciones, bien como correspondiente a la iniciativa privada de los individuos (capitalismo liberal), o como dependiente de las instituciones de derecho
+público y de las corporaciones (capitalismo de monopolio), o competencia de los Órganos del Estado, del poder político (capitalismo de Estado en todas sus formas).
+
+En los países de capitalismo clásico, la reducción de la soberanía nacional a una soberanía puramente política es la consecuencia de los principios fundamentales de la organización económica. 
+La propiedad de los medios de producción, de la que se desprende el derecho de los propietarios a disponer de los productos del trabajo humano, no es tomada en consideración por el derecho público sino en tanto que se trata de asegurar
+su protección, como la de todos los derechos individuales. 
+La Constitución no regula su ejercicio, ya que minaría así los principios mismos del régimen capitalista.
+ES lógico e inevitable, pues, que un sistema constituccional fundado en el derecho privado de propiedad reduzca la soberanía popular a una soberanía política.
+En una sociedad semejante, como decía Marx, sólo la emancipación política ha sido realizada, pero no la emancipación social. La política se ha hecho cosa común, pero no la economía ni la sociedad.
+
+En una Constitución basada en el capitalismo de Estado, la “soberanía del pueblo trabajador” queda re-
+
+
+ducida igualmente a la soberanfa política, como …f<'
+cuencia lógica de los principios del régimen que, aunque -
+diferentes, conducen a ese mismo resultado. El dere-
+cho, que allí pertenece a los órganos del Estado, de
+administrar los medios de producción y los productos
+del trabajo humano aleja inevitablemente a los produc-
+tores de la gestión de las cuestiones sociales y reduce
+la soberanía exclusivamente a una noción política.
+
+Pero el sistema constitucional yugoslavo no se carac-
+teriza sólo por esta extensión cuantitativa del alcance
+de la soberanía popular; modifica también, cualitativa-
+mente, la naturaleza de ésta. La soberanía se vuelve de
+naturaleza social tanto como política. Engloba todas
+las formas de autogobierno político, económico y social.
+(El autogobierno social es la gestión popular de las ins= —
+tituciones de carácter puramente social tales como las
+instituciones de enseñanza, de investigación científica o
+de difusión cultural.) Esta transformación de la sobera-
+nía del pueblo trabajador es la consecuencia lógica y ne-
+cesaria de las modificaciones introducidas en las rela-
+ciones de propiedad, como consecuencia del autogobierno:
+de los productores. Pero, por otra parte, el poder polf-
+tico mismo se socializa, en la medida en que está for-
+mado desde entonces, no sólo por la representación
+política de los ciudadanos (por medio de la cual el pue
+blo trabajador aseguraba, por intermedio de su vanguar
+dia, la preponderancia de las fuerzas sociales y la adop-
+ción de decisiones socialistas), sino también por la
+representación directa de los productores —de aquellos
+que ejercen las funciones económicas del socialismo.
+
+Gracias a esta doble representación, el sistema yugos-
+lavo asegura un papel dirigente a la clase obrera, de
+una manera democrática y, por así decirlo, “natural”, en
+lugar de.hacerlo de manera autoritaria, mediante la dic-
+tadura de un partido único. Hablando de este nuevo
+contenido de la soberanía del pueblo trabajador, Kardelj
+escribe: “Este papel dirigente [de la clase obrera] no
+es asegurado ya por la Ley constitucional, antes que
+nada, gracias a las posiciones reservadas a su vanguar-
+dia política en el aparato administrativo —lo que, en
+
+
+
+
+
+
+
+
+
+
+
 
 
 ---
