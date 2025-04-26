@@ -181,7 +181,23 @@ Por otra parte, sin democratización generalizada, sin la aplicación del autogo
 La formación de las comunas no tiene por objeto dividir y dislocar a la sociedad, sino unirla sobre una base lo más libre, lo más consciente y real poSible. 
 Las comunas no pueden consolidarse ni desarrollarse; pues, sino en una sociedad donde las relaciones sean socialistas, donde el autogobierno del pueblo trabajador se aplique en todos los terrenos y en todos los niveles.
 
-Las principales funciones de la comuna consisten en “la armonización de los intereses generales y los intereses individuales”. “Los intereses generales” son, al
+Las principales funciones de la comuna consisten en “la armonización de los intereses generales y los intereses individuales”. “Los intereses generales” son, al mismo tiempo, los intereses de la comuna y los de la comunidad estatal en su conjunto; 
+“los intereses individuales” son los de las empresas económicas y los obreros y empleados que trabajan en ellas. 
+La comuna armoniza estos intereses ejerciendo los dos poderes siguient a) Reparte el ingreso social entre la empresa
+económica y la comuna; b) Asegura la aplicación de la Ley y los reglamentos generales y, para este fin, dicta sus propios reglamentos.
+
+De esta manera, se asegura la unidad económica, social y jurídica del país, sin recurrir al centralismo administrativo. 
+La función comunal así definida es una aplicación del principio democrático según el cual el poder de disposición de las cosas debe pertenecer a los que las producen. 
+Este principio es atemperado por la existencia de las normas del Estado y por el hecho de que el Comité popular, órgano principal de la comuna, representa no sólo a los productores sino también a los consumidores, con el fin de evitar las manifestaciones del egoísmo y de un espíritu estrecho. 
+El producto de la empresa es considerado como el producto de la sociedad. 
+De esta manera, la solidaridad entre productores y ciudadanos se ve reforzada.
+
+9. GESTIÓN SOCIAIL Y ASOCIACIONES LIBRES DEL PUEBLO TRABAJADOR
+
+En sentido amplio, la gestión social es el autogobierno del pueblo trabajador. 
+En un sentido estrecho, pueden considerarse como instituciones de gestión social las organizaciones sociales libres que realizan las tareas de interés general para la comunidad. 
+La Ley constitucional emplea, en efecto, la expresión de “gestión social” para designar “el autogobierno en el dominio de la educación, de la cultura y de los servicios sociales” (artículo 4, fracción 2).
+Es a partir de 1950 cuando las instituciones relativas a la educación, a la ciencia, a la cultura y, en general, a los servicios sociales han empezado a eman
 
 
 
@@ -195,55 +211,6 @@ Las principales funciones de la comuna consisten en “la armonización de los i
 
 
 
-
-
-
-
-
-munidad estatal en su conjunto;
-duales” son los de las empresas cconómicas y los ob
-ros y empleados que trabajan en ellas. La comuna
-armoniza estos intereses ejerciendo los dos poderes si-
-guientes: a) Reparte el ingreso social entre la empresa
-económica y la comuna; b) Asegura la aplicación de la
-Ley y los reglamentos generales y, para este fin, dicta
-sus propios reglamentos.
-
-De esta manera, se asegura la unidad económica,
-social y jurídica del país, sin recurrir al centralismo
-administrativo. La función comunal así definida es una
-aplicación del principio democrático según el cual el po-
-der de disposición de las cosas debe pertenecer a los
-que las producen. Este principio es atemperado por la
-existencia de las normas del Estado y por el hecho de.
-que el Comité popular, órgano principal de la comi
-representa no sólo a los productores sino también a los
-consumidores, con el fin de evitar las manifestaciones
-del egoísmo y de un espíritu estrecho. El producto de
-la empresa es considerado como el producto de la socie-
-dad. De esta manera, la solidaridad entre productores
-y ciudadanos se ve reforzada. .
-
-l
-9. GESTIÓN SOCIAL Y ASOCIACIONES LIBRES DEL |
-PuesLo TRABAJADOR …
-
-En sentido amplio, la gestión social es el :|uu:»gc¡biv.m:n'g'j
-del pueblo trabajador. En un sentido más estrecho.'f
-pueden considerarse como instituciones de gestión so-
-cial las organizaciones sociales libres que realizan las
-tareas de interés general para la comunidad. La
-constitucional emplea, en efecto, la expresión de “ges-.
-tión social” para designar “el autogobierno en el domi:-
-nio de la educación, de la cultura y de los servicios
-sociales” (artículo 4, fracción 2).
-
-Es a partir de 1950 cuando las instituciones rela-
-tivas a la educación, a la ciencia, a la cultura y, en
-general, a los servicios sociales han empezado a eman-
-
-…Es + de la administración directa y de la tutela del
-tado.
 
 Desde entonces, la Ley constitucional federal ha he-
 cho de la gestión social en estos terrenos de actividad
