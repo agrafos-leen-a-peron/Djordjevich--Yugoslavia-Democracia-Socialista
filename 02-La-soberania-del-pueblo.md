@@ -212,107 +212,47 @@ En tanto que sistema, la gestión social se basa en los siguientes principios:
 
 a) Para la enseñanza, la ciencia y la Cultura, así como los servicios sociales, existen instituciones autónomas, La amplitud de la autonomía depende del papel de la institución. 
 No se trata de una autonomía administrativa, en el sentido clásico de la palabra, ya que las instituciones autónomas no forman parte de la administración del Estado y no están regidas por el derecho administrativo. 
-Son instituciones sociales independientes, regidas por un derecho nuevo en formación: el dere
+Son instituciones sociales independientes, regidas por un derecho nuevo en formación: el dere cho social, que señala la desaparición paulatina del Estado.
+
+b) Los órganos de gestión no se componen sólo de cuerpos formados por miembros elegidos fuera de la institución, sino también de cuerpos integrados por los miembros de la colectividad de trabajo. 
+Así, por ejem»lo, la gestión social de la Universidad está confiada a dos tipos de organismos: los consejos y los comités de dirección, comprendiendo los primeros entre sus miembros a ciudadanos electos y componiéndose los segunlos únicamente de profesores y colaboradores de Facultades. 
+Esta concepción de la gestión social exige naturalmente que sean garantizadas la unidad y la cooperación armoniosa de estos diversos organismos, así omo el respeto de sus respectivos derechos. 
+Hay que liminar toda eventualidad de conflictos, todo intento de crear entre esos organismos relaciones jerárquicas.
+La responsabilidad social de todos los cuerpos y de todos los individuos que participan en esa gestión debe ser igual. 
+Conviene eliminar de la noción de “autonomía” todo lo que la oponga a la “gestión social” y la onvierta en un derecho exclusivo, aislado de la comunidad;
+
+c) La gestión es descentralizada; es confiada directamente a las instituciones mismas. 
+La Federación se reserva únicamente el derecho de dictar las normas de principio, en forma de leyes. 
+Si determinadas tareas son atribuidas a la administración del Estado, en ciertas instituciones (por ejemplo, las escuelas primarias) son realizadas por órganos sociales o socializados en gran parte, como los consejos de los comités populares o de las Repúblicas;
+
+d) El artículo 2, fracción 2, de la Ley sobre las uniidades dispone: “Las cuestiones de enseñanza y trabajo cientifico son de la competencia exclusiva de las colectividades pedagógicocientíficas.
+Este principio sirve de base a la organi ón de la gestión social en el terreno de la enseñanza, la ciencia y la cultura claramente las funciones de los diversos órganos dirigentes de las escuelas y las universidades. 
+
+Además, es la garantía de la autonomía pedagógico-científica. 
+Condena la concepción errónea de la gestión concebida como un sistema de control exterior, político y social.
+Demuestra que la gestión social es una gestión al mismo tiempo social y universitaria. 
+Todos los organismos son responsables lo mismo «ante la sociedad que ante la Universidad.
+
+La autogestión social elimina, además, dos peligros: 
+a) La dirección autoritaria y burocrática de las instituciones educativas, científicas, culturales y otras; 
+b) El monopolio del Estado sobre el pensamiento científico y, en general, sobre el pensamiento y la vida sociales.
+
+La segunda consecuencia es particularmente importante. 
+El monopolio del Estado, inclusive si es llevado a cabo por una organización política progresista, representa siempre y sobre todo en el campo del pensamiento científico un fenómeno nefasto, antidemocrático y antisocialista. 
+Proclamar de alguien que sostiene “verdades efernas e infalibles” en todos los aspectos de la vida política y social es de por sí anticientífico, dogmático y, en consecuencia, contrario al socialismo. 
+Marx condenaba la “pretendida razón oficial” que “no se intruye a través de la ciencia, sino que quiere instruir a la ciencia”. 
+En ninguna parte las trabas impuestas a la ciencia y al espíritu de investigación son tan peligrosas como en un Estado socialista, ya que el socialismo exige una producción material en expansión y hombres cultivados y libres. 
+Son el pensamiento creador del hombre y la investigación científica los que descubren las formas motrices encerradas en la materia, en los fundamentos de la sociedad y en el hombre mismo. 
+Toda pretensión de dominar a los espíritus, de imponer opiniones en el campo de la ciencia y la enseñanza conducen al estancamiento, a la podredumbre del sistema social. 
+Entonces no es el socialismo lo que se desarrolla, sino la anarquía, la burocracia, el hastío social, la mediocridad, el espíritu servil.
+
+La peor forma de dogmatismo es la que reina en los regímenes donde un grupo de políticos en el poder
 
 
 
 
+---
 
-EA TN o
-que sei la desapari paulatina
-Estado. m
-5) Los órganos de gestión no se componen sólo de
-cuerpos formados por miembros clegidos fuera de la. ¡l
-institución, sino también de cuerpos integrados por los —
-miembros de la colectividad de trabajo. Así, por ejem- —
-plo, la gestión social de la Universidad está confiada a -
-dos tipos de organismos: los consejos y los comités de E
-=
-
-dirección, comprendiendo los primeros entre sus miem- -
-bros a ciudadanos electos y componiéndose los segun-
-dos úñicamente de profesores y colaboradores de Fa-
-cultades. Esta concepción de la gestión social exige P
-naturalmente que sean garantizadas la unidad y la co-—
-operación armoniosa de estos diversos organismos, así -
-como el respeto de sus respectivos derechos. Hay que —
-climinar toda eventualidad de conflictos, todo intento
-de crear entre esos organismos relaciones jerárquicas. -
-La responsabilidad social de todos los cuerpos y de -
-todos los individuos que participan en esa gestión debe re
-ser igual. Conviene eliminar de la noción de “autono- —
-mía” todo lo que la oponga a la “gestión social” y la
-convierta en un derecho exclusivo, aislado de la co? '
-munidad; l
-C) La gestión es descentralizada; es confiada direc- *»“4
-tamente a las instituciones mismas. La Federación se »
-reserva únicamente el derecho de dictar las normas de —
-principio, en forma de leyes. Si determinadas t…£
-
-son atribuidas a la administración del Estado, en cier- y
-tas instituciones (por ejemplo, las escuelas primariu]'.£3
-son realizadas por órganos sociales o socializados en '3=1
-gran parte, como Jos consejos de los comités populares
-o de las Repúblicas; "
-d) El artículo 2, fracción 2, de la Ley sobre las uni- -
-versidades dispone: “Las cuestiones de enseñanza y tra-
-bajo científico son de la competencia exclusiva de las €
-colectividades pedagógicocientíficas.” Este principio 1
-sirve de base a la organización de la gestión social. "
-el terreno de la enseñanza, la ciencia y la cultura. Fija 5¡
-claramente las funciones de los diversos órganos diri- — Al
-
-gentes de las escuelas y las universidades. Además es —
-
--
-
-garantía de la aumnamln pedagógíco-u…¡ Uan—
-
-- dena la concepción errónea de la gestión concebida
-— como un sistema de control exterior, político y social.
-Demuestra que la gestión social es una gestión al mis- —
-mo tiempo social y universitaria. Todos los organismos
-son responsables lo mismo ante la sociedad que ante la
-— Universidad.
-
-La autogestión social elimina, además, dos peligros:
-a) La dirección autoritaria y burocrática de las insti-
-tuciones educativas, científicas, culturales y otras; b)
-El monopolio del Estado sobre el pensamiento cientí-
-fico y, en general, sobre el pensamiento y la vida so-
-ciales.
-
-La segunda consecuencia es particularmente impor-
-tante. El monopolio del Estado, inclusive si es llevado
-a cabo por una organización política progresista, repre-
-senta siempre y sobre todo en el campo del pensamien-
-to científico un fenómeno nefasto, antidemocrático y
-antisocialista. Proclamar de alguien que sostiene “ver-
-dades eférnas e infalibles” en todos los aspectos de la
-vida política y social es de por sí anticientífico, dog-
-mático y, en consecuencia, contrario al socialismo. Marx
-condenaba la “pretendida razón oficial” que “no se ins-
-truye a través de la ciencia, sino que quiere instruir
-a la ciencia”. En ninguna parte las trabas impuestas a
-
-la ciencia y al espíritu de investigación son tan peli-
-— grosas como en un Estado socialista, ya que el socia-
-lismo exige una producción material en expansión y
-_“ hombres cultivados y libres. Son el pensamiento crea-
-dor del hombre y la investigación científica los que
-descubren las formas motrices encerradas en la mate-
-ria, en los fundamentos de la sociedad y en el hombre
-
-- mismo. Toda pretensión de dominar a los espíritus,
-
-de imponer opiniones en el campo de la ciencia y la
-enseñanza conducen al estancamiento, a la podredum-
-bre del sistema social. Entonces no es el socialismo lo
-que se desarrolla, sino la anarquía, la burocracia, el has-
-tío social, la mediocridad, el espíritu servil.
-
-La peor forma de dogmatismo es la que reina en
-los regímenes donde un grupo de políticos en el poder
 
 » a20
 pmt:1mm ¡lo&eedor de Ias veídndcs cfentíñuax.
