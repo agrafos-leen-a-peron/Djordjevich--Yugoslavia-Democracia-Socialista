@@ -246,88 +246,30 @@ Son el pensamiento creador del hombre y la investigación científica los que de
 Toda pretensión de dominar a los espíritus, de imponer opiniones en el campo de la ciencia y la enseñanza conducen al estancamiento, a la podredumbre del sistema social. 
 Entonces no es el socialismo lo que se desarrolla, sino la anarquía, la burocracia, el hastío social, la mediocridad, el espíritu servil.
 
-La peor forma de dogmatismo es la que reina en los regímenes donde un grupo de políticos en el poder
-
-
-
-
----
-
-
-» a20
-pmt:1mm ¡lo&eedor de Ias veídndcs cfentíñuax.
-ciador, controlador, y organizador de todas las activida-
-des sociales. Este monopnlio del Estado —suponiendo —
-inclusive que sea ejercido por hombres de talento— con- —
-duce inevitablemente a resultados desastrosos, tanto
-en el plano moral como en el plano político. Ahoga
-todos los gérmenes de democracia en la sociedad, ins-
-tituye el automatismo y la burocracia, destruye las li-
-bertades y los derechos de los ciudadanos. Es al arro- -
-garse el derecho de “no equivocarse nunca, de tener -
-siempre razón” cuando la administración del Estado se —
-vuelve tan antidemocrática, tan burocráticamente des-
-piadada, tan orgullosa, tan falsamente superior, tan im-
-buida por un espíritu de casta, tan irresponsable y "
+La peor forma de dogmatismo es la que reina en los regímenes donde un grupo de políticos en el poder se proclama poseedor de las verdades científicas, iniciador, controlador, y organizador de todas las actividades sociales. 
+Este monopolio del Estado —suponiendo inclusive que sea ejercido por hombres de talento— conduce inevitablemente a resultados desastrosos, tanto en el plano moral como en el plano político. 
+Ahoga todos los gérmenes de democracia en la sociedad, instituye el automatismo y la burocracia, destruye las libertades y los derechos de los ciudadanos. 
+Es al arrogarse el derecho de “no equivocarse nunca, de tener siempre razón” cuando la administración del Estado se vuelve tan antidemocrática, tan burocráticamente despiadada, tan orgullosa, tan falsamente superior, tan imbuida por un espíritu de casta, tan irresponsable y
 peligrosa para la sociedad.
 
-La gestión social se opone a todo intento hecho por 1
-grupos o individuos para establecer su monopolio en —
-un campo de la actividad o el pensamiento sociales. -
-Libera la iniciativa, el pensamiento crítico y creador de --
-los hombres, en el desarrollo de las actividades que co- —
-nocen y les hace cobrar conciencia de su responsabi- -
-lidad. ,
+La gestión social se opone a todo intento hecho por grupos o individuos para establecer su monopolio en un campo de la actividad o el pensamiento sociales.
+Libera la iniciativa, el pensamiento crítico y creador de los hombres, en el desarrollo de las actividades que conocen y les hace cobrar conciencia de su responsabilidad.
 
-En este sistema, las asociaciones libres del pueh15
-trabajador ocupan un lugar especial. La libertad de -
-asociación del pueblo trabajador está garantizada por -
-el artículo 5, fracción 1, de la ley constitucional. La aso-
-ciación debe tener por objeto la realización de los intere- -
-ses democráticos, económicos, profesionales, culturales
-y todos los demás intereses comunes a los ciudadanos.
+En este sistema, las asociaciones libres del pueblo trabajador ocupan un lugar especial. 
+La libertad de asociación del pueblo trabajador está garantizada por el artículo 5, fracción 1, de la ley constitucional. 
+La asociación debe tener por objeto la realización de los intereses democráticos, económicos, profesionales, culturales y todos los demás intereses comunes a los ciudadanos.
 
-Estas asociaciones contribuyen también a limitar el
-estatismo, Permiten, a aquellos ciudadanos que son
-los más conscientes de su rcsponsab¡hdad social, orga-.
-nizarse para realizar en común actividades que repre-'
-sentan un interés para ellos mismos y para la comu- —
-nidad entera.
+Estas asociaciones contribuyen también a limitar el estatismo, permiten, a aquellos ciudadanos que son los más conscientes de su responsabilidad social, organizarse para realizar en común actividades que representan un interés para ellos mismos y para la comunidad entera.
 
-Constituyen la prueba de que el Estado yugoslavo
-está fundado, no sobre el “socialismo de Estado”, sino -
-sobre el socialismo democrático. Confirman el postula—
-do científico según el cual la función del Estado sociá-
-lista no es —como se piensa algunas veces— organizar z
+Constituyen la prueba de que el Estado yugoslavo esta fundado, no sobre el “socialismo de Estado”, sino sobre el socialismo democrático. 
+Confirman el postulado científico según el cual la función del Estado sociálista no es —como se piensa algunas veces— organizar y educar a toda la sociedad, dirigirla prescribiéndole todo lo que debe hacer y determinar por ella cuáles son sus intereses sino, más bien, ayudarla material, política e ideológicamente a organizarse ella misma, progresivamente, sobre la base de la libertad, por la actividad libre y consciente de los ciudadanos. 
+En estas condiciones, la intervención del Estado no se justifica sino en tanto que es indispensable para favorecer el desarroJlo de la democracia socialista y protegerla contra las fuerzas antisocialistas y antidemocráticas. 
+El Estado debe ayudar a la sociedad a emanciparse de las antiguas instituciones, de las antiguas relaciones sociales, a superar las resistencias y reacciones diversas que se manifiestan, en las condiciones concretas de cada país,
+en el curso del penoso y dramático nacimiento de la nueva sociedad.
 
-y educar a toda la sociedad, dirigirla prescribiéndole
-todo lo que debe hacer y determinar por ella cuáles
-son sus intereses sino, más bien, ayudarla material, po-
-lítica e ideológicamente a organizarse ella misma, progre-
-sivamente, sobre la base de la libertad, por la actividad
-libre y consciente de los ciudadanos. En estas condi-
-ciones, la intervención del Estado no se justifica sino
-en tanto que es indispensable para favorecer el desarro-
-Jlo de la democracia socialista y protegerla contra las
-fuerzas antisocialistas y antidemocráticas, El Estado
-debe ayudar a la sociedad a emanciparse de las antiguas
-instituciones, de las antiguas relaciones sociales, a su-
-
-las resistencias y reacciones diversas que se ma-
-nifiestan, en las condiciones concretas de cada país,
-en el curso del penoso y dramático nacimiento de la
-nueva sociedad.
-
-Las asociaciones populares han existido desde la
-primera fase de la evolución constitucional yugoslava;
-pero cobraron gran impulso sobre todo cuando la evo-
-Jución condujo del estatismo al autogobierno. La ley
-constitucional confirma este principio y estimula su
-desarrollo. No hay que interpretar estas disposiciones
-como una simple reafirmación del derecho de asocia-
-ción, al cual había sido consagrada una gran parte de
-la declaración de derechos de la Constitución de 1946.
-“La asociación libre" es concebida, desde entonces,
-como la antítesis del “socialismo de Estado”, como una
-institución de la democracia socialista,
+Las asociaciones populares han existido desde la primera fase de la evolución constitucional yugoslava;
+pero cobraron gran impulso sobre todo cuando la evoJución condujo del estatismo al autogobierno.
+La ley constitucional confirma este principio y estimula su desarrollo. 
+No hay que interpretar estas disposiciones como una simple reafirmación del derecho de asociación, al cual había sido consagrada una gran parte de la declaración de derechos de la Constitución de 1946.
+“La asociación libre" es concebida, desde entonces, como la antítesis del “socialismo de Estado”, como una institución de la democracia socialista.
 
