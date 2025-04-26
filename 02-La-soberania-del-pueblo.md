@@ -93,10 +93,23 @@ representación directa de los productores —de aquellos que ejercen las funcio
 
 Gracias a esta doble representación, el sistema yugoslavo asegura un papel dirigente a la clase obrera, de
 una manera democrática y, por así decirlo, “natural”, en lugar de hacerlo de manera autoritaria, mediante la dictadura de un partido único. 
-Hablando de este nuevo contenido de la soberanía del pueblo trabajador, Kardelj escribe: “Este papel dirigente [de la clase obrera] no es asegurado ya por la Ley constitucional, antes que nada, gracias a las posiciones reservadas a su vanguardia política en el aparato administrativo —lo que, en 
+Hablando de este nuevo contenido de la soberanía del pueblo trabajador, Kardelj escribe: “Este papel dirigente [de la clase obrera] no es asegurado ya por la Ley constitucional, antes que nada, gracias a las posiciones reservadas a su vanguardia política en el aparato administrativo —lo que, en último análisis, como se ha visto en la URSS, lleva al burocratismo de la vanguardia misma, a su fusión con el aparato administrativo del Estado Y, en definitiva, a la separación de Ja administración del Estado y la clase obrera—, sino mediante el autogobierno de Jos trabajadores, en las empresas y las demás organizaciones
+económicas, y por el control directo que las masas obreras, a través de sus órganos representativos, ejercen sobre la ocupación y la distribución del ingreso nacional.”
 
+De una manera general, puede decirse que al adoptar el principio de autogobierno, la Ley constitucional ha
+puesto en práctica una fórmula activa y positiva de soberanía del pueblo trabajador.
 
+No hay verdadero autogobierno, en efecto, que no ea concebido como un derecho individual, el derecho
+del ciudadano a ser no sólo poseedor pasivo de derechos políticos, sino también un creador, un participante activo en la formación y la gestión de las instituciones sociales. 
+Igualmente la cultura, la instrucción, la libertad de expresión y de organización, el interés material, etc., deben ser considerados por el ciudadano como tantas otras condiciones previas a la realización del autogobierno.
 
+Sin duda, la Ley constitucional no ha cambiado (no podía hacerlo) la forma del poder ni de la gestión. 
+Los crganos de base de la soberanía siguen siendo representativos: comités populares y asambleas populares, consejos obreros y otros órganos representativos. 
+El auto gobierno no se ha realizado todavía bajo la forma de una democracia directa. 
+Las principales modalidades de participación del pueblo trabajador consisten, pues, en la elección de los miembros de esos cuerpos, así como en el control de su actividad: responsabilidad política de los representantes ante sus electores, derechos
+de revocación de los representantes.
+
+No obstante, existen ciertas formas de participación
 
 
 
